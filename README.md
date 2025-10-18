@@ -1,1 +1,0 @@
-# hanapramudita.github.io
